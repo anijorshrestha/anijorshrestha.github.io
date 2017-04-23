@@ -8,5 +8,5 @@ ROJINA SHRESTHA
 
 ### Contact me
 
-[email@domain.com](mailto:anijorshrestha@gmail.com)
-[email@domain.com](mailto:rojina.shrestha@deerwalk.edu.np)
+[anijorshrestha@gmail.com](mailto:anijorshrestha@gmail.com)
+[rojina.shrestha@deewalk.edu.np](mailto:rojina.shrestha@deerwalk.edu.np)
