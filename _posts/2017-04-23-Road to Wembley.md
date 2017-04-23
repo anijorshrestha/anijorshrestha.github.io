@@ -4,7 +4,7 @@ title: Chelsea beats Tottenham !
 ---
 
 <img src="images/18076572_1685061998189660_1552859588802718455_o.jpg
-" alt="hi" class="inline" height=30% width=100%/>
+" alt="hi" class="inline" height=30% width=100%>
 
 Yesterday was one hell of the match between Chelsea and Spurs with the full time score Chelsea 4-2 Tottenham. Recently loosing Manchester United 2-0 and the winning streak of Spurs were surely making every Chelsea fan go scared. But still we have faith in our Godfather "Conte", the mastermind who took Chelsea all the way to Top. 
 
