@@ -3,7 +3,7 @@ layout: post
 title: Road to Wembley!!!
 ---
 
-<img src=" anijorshrestha.github.io/images/18010069_746893935488001_3349905911664490890_n.jpg 
+<img src="images/18010069_746893935488001_3349905911664490890_n.jpg 
 "  class="inline" width="400" height="400">
 
 
