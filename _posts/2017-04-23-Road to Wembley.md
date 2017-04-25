@@ -4,7 +4,7 @@ title: Road to Wembley!!!
 ---
 
 
-<img src="http://cdn.caughtoffside.com/wp-content/uploads/2017/04/Kurt-Zouma-640x400.jpg" style="width: 10px;"/>
+<img src="http://cdn.caughtoffside.com/wp-content/uploads/2017/04/Kurt-Zouma-640x400.jpg" style="width: 200px;"/>
 
 Yesterday was one hell of the match between Chelsea and Spurs with the full time score Chelsea 4-2 Tottenham. Recently loosing Manchester United 2-0 and the winning streak of Spurs were surely making every Chelsea fan go scared. But still we have faith in our Godfather "Conte", the mastermind who took Chelsea all the way to Top. 
 
