@@ -3,7 +3,9 @@ layout: post
 title: Road to Wembley!!!
 ---
 
-![alt text](https://github.com/anijorshrestha/anijorshrestha.github.io/blob/master/images/18010069_746893935488001_3349905911664490890_n.jpg "Logo Title Text 1")
+Inline-style: 
+![alt text](https://github.com/adam-p/markdown-here/raw/master/src/common/images/icon48.png "Logo Title Text 1")
+
 <img src="https://github.com/anijorshrestha/anijorshrestha.github.io/blob/master/images/18010069_746893935488001_3349905911664490890_n.jpg"  class="inline" width="400" height="400">
 
 
