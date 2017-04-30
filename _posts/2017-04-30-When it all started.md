@@ -7,7 +7,7 @@ title: When it all started!!!
 <img src="http://content.mycutegraphics.com/graphics/soccer/soccer-team-with-trophy.png" />
 
 <b>"If there was a girl and she felt put down for wanting to play football, I would say don’t let anyone put you down, 
-grab your boots, grab your shin pads, grab your ball, football doesn’t have a gender."<b>
+grab your boots, grab your shin pads, grab your ball, football doesn’t have a gender."</b>
 
 Lets play football - someone from youtube channel
 
