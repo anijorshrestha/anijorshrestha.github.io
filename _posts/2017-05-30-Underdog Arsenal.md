@@ -5,6 +5,7 @@ title: Underdog Arsenal!!!
 
  <img src="http://cdn.images.express.co.uk/img/dynamic/67/590x/810173_1.jpg" style="width: 500px;"/>
  
+ 
  Arsenal started FA Cup final with the unusual tag of underdogs despite contesting their 3rd cup final in the last four seasons. Uncertainty over manager Wenger’s future and a disappointing league campaign that concluded with failure to qualify for the Champions League meant that there was unrest in the stands and discontent in the squad. 
 Chelsea, in contrast, were brimming with a confidence that comes with winning the Premier League title. The starting eleven was settled and at full strength with a proven 3-4-3 formation, Defeating Manchester United and Tottenham on route to Wembley underlined their FA Cup ambitions. 
 
