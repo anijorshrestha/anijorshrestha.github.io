@@ -15,8 +15,8 @@ What I thought the game would be was exactly turned opposite. Arsenal’s tradem
  
 Chelsea could play no worse and a reaction was expected in the second half. This was the Champions after-all. Chelsea began to play with urgency. But still ,I see Cahil vs Arsenal. 
 
-In the 67th minute, Arsenal were given a huge boost when wing back Victor Moses was booked for simulation in the penalty area. Replays seem to confirm the referee’s decision. The yellow was Moses second and he was off. (Why did he dive? :( ) 
-In the 75th minute the 10 men were level as Costa brought the ball down in the box and shot into the bottom left corner. Arsenal were rocked Chelsea rejuvenated. (Only a minute a feeling that we were in game .)Arsenal’s response, however, was instant. Three minutes later they were ahead again. Ramsey arrived late in the box to despatch a free header from the 6-yard box. 
+In the 68th minute, Arsenal were given a huge boost when wing back Victor Moses was booked for simulation in the penalty area. Replays seem to confirm the referee’s decision. The yellow was Moses second and he was off. (Why did he dive? :( ) 
+In the 76th minute the 10 men were level as Costa brought the ball down in the box and shot into the bottom left corner. Arsenal were rocked Chelsea rejuvenated. (Only a minute a feeling that we were in game .)Arsenal’s response, however, was instant. Three minutes later they were ahead again. Ramsey arrived late in the box to despatch a free header from the 6-yard box. 
 
 It was almost over but still part of me was wishing for a magic. The every moment Arsenal counter attack I felt like I could have heartattack, my fingers all crossed and heartbeat beating faster than ever. It hurts to say but we were not playing football at all,Players as well as fans were overconfident( I was ),we could have win the double, but it was written for Arsenal. Arsenal were inspired.  Arsenal were unrecognizable.
 
