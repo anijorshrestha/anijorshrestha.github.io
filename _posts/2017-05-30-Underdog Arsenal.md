@@ -20,7 +20,7 @@ In the 75th minute the 10 men were level as Costa brought the ball down in the b
 
 It was almost over but still part of me was wishing for a magic. The every moment Arsenal counter attack I felt like I could have heartattack, my fingers all crossed and heartbeat beating faster than ever. It hurts to say but we were not playing football at all,Players as well as fans were overconfident( I was ),we could have win the double, but it was written for Arsenal. Arsenal were inspired.  Arsenal were unrecognizable.
 
-With the win ,Wenger became the tournament’s most successful manager with seven wins, while Arsenal with their 14th win had now won the cup more than any other team. 
+With the win ,Wenger became the tournament’s most successful manager with seven wins, while Arsenal with their 13th win had now won the cup more than any other team. 
 
 Congratulation Arsenal and all the Arsenal fan’s on winning FA Cup !!!
 
