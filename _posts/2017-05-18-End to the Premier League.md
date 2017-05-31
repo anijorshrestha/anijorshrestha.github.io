@@ -3,7 +3,7 @@ layout: post
 title: End to the Premier League!!!
 ---
 
- <img src="http://i.dailymail.co.uk/i/pix/2017/05/15/22/405DE76500000578-4508550-Chelsea_boss_Antonio_Conte_smiles_as_he_wears_an_inflatable_crow-a-111_1494883999015.jpg" style="width: 500px;"/>
+ <img src="https://i.ytimg.com/vi/J8b0svAJ6i4/hqdefault.jpg" style="width: 500px;"/>
 
 
 Chelsea secured the Premier League title after substitute Michy Batshuayi's 82nd-minute goal earned Antonio Conte's side a hard-earned 1-0 victory at West Bromwich Albion.The victory, Chelsea's 28th of the season, put the long-time league leaders 10 points clear of second-placed Tottenham Hotspur, who have only three games left to play. Conte is only the fourth manager to win the Premier League title at the first attempt, emulating his Stamford Bridge predecessors Jose Mourinho and Carlo Ancelotti as well as Manuel Pellegrini who achieved the feat with Manchester City. It is Chelsea's second title win in three seasons, their sixth in total, and comes at the end of former Juventus and Italy coach Conte's first season as manager.Conte, who claimed three Serie A titles as Juventus coach, has restored the club to the winners' circle by rebuilding from the chaotic end of Jose Mourinho's second reign.
