@@ -1,6 +1,6 @@
 ---
 layout: post
-title: RIP Bravest Soul!!!
+title: RIP Little SuperHero!!!
 ---
 
  <img src="https://cdn.rt.com/files/2017.07/original/595fa2b6dda4c899508b4567.jpg" style="width: 500px;"/>
