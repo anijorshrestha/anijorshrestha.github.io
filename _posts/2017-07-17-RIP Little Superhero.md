@@ -5,7 +5,7 @@ title: RIP Little SuperHero!!!
 
  <img src="https://cdn.rt.com/files/2017.07/original/595fa2b6dda4c899508b4567.jpg" style="width: 500px;"/>
  
-Six-year-old Sunderland fan ,Bradley Lowery, whose plight touched the lives of many people, has died after a long illness named neuroblastoma - a rare type of cancer - when he was 18 months old. 
+Six-year-old Sunderland fan ,Bradley Lowery, whose plight touched the lives of many people, has died after a long illness named neuroblastoma - a rare type of cancer - diagonised when he was 18 months old. 
 
 Bradley went on to be the club's mascot and became "best mates" with his hero, striker Jermain Defoe. He also led England out at Wembley for a World Cup qualifier against Lithuania.
 
